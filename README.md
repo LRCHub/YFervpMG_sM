@@ -1,0 +1,81 @@
+# Billie Eilish – bury a friend
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.44] Billie...
+[00:04.94] 
+[00:07.67] What do you want from me?
+[00:09.55] Why don't you run from me?
+[00:11.59] What are you wondering?
+[00:13.48] What do you know?
+[00:15.53] Why aren't you scared of me?
+[00:17.56] Why do you care for me?
+[00:19.40] When we all fall asleep, where do we go?
+[00:39.40] 
+[00:23.67] Come here...
+[00:29.67] 
+[00:24.98] Say it, spit it out, what is it exactly?
+[00:28.71] You're payin'?
+[00:29.77] Is the amount cleanin' you out
+[00:31.40] Am I satisfactory?
+[00:32.96] Today, I'm thinkin' about
+[00:35.14] The things that are deadly
+[00:36.85] The way I'm drinkin' you down
+[00:38.57] Like I wanna drown, like I wanna end me
+[00:58.07] 
+[00:40.87] Step on the glass, staple your tongue (Ahh)
+[00:44.74] Bury a friend, try to wake up (Ahh-ha)
+[00:48.87] Cannibal class, killin' the son (Ahh)
+[00:52.87] Bury a friend, I wanna end me
+[01:07.37] 
+[01:03.48] I wanna end me
+[01:05.13] I wanna, I wanna, I wanna end me
+[01:08.93] I wanna, I wanna, I wanna–
+[01:21.93] 
+[01:11.78] What do you want from me?
+[01:13.56] Why don't you run from me?
+[01:15.52] What are you wondering?
+[01:17.58] What do you know?
+[01:19.52] Why aren't you scared of me?
+[01:21.56] Why do you care for me?
+[01:23.50] When we all fall asleep, where do we go?
+[01:43.50] 
+[01:27.77] Listen...
+[01:32.27] 
+[01:29.13] Keep you in the dark, what had you expected?
+[01:32.86] Me to make you my art
+[01:34.66] And make you a star and get you connected?
+[01:36.81] I'll meet you in the park
+[01:39.29] I'll be calm and collected
+[01:40.93] But we knew right from the start
+[01:42.62] That you'd fall apart 'cause I'm too expensive
+[01:44.87] Your talk'll be somethin' that shouldn't be said out loud
+[01:48.52] Honestly, I thought that I would be dead by now (Wow)
+[01:52.73] Callin' security, keepin' my head held down
+[01:56.74] Bury the hatchet or bury your friend right now
+[02:19.74] 
+[02:00.43] For the debt I owe, gotta sell my soul
+[02:04.19] 'Cause I can't say no, no, I can't say no
+[02:08.19] Then my limbs all froze and my eyes won't close
+[02:12.19] And I can't say no, I can't say no
+[02:29.19] 
+[02:16.06] Careful...
+[02:21.06] 
+[02:16.96] Step on the glass, staple your tongue (Ahh-ha)
+[02:20.63] Bury a friend, try to wake up (Ahh-ha)
+[02:24.74] Cannibal class, killin' the son (Ahh)
+[02:28.74] Bury a friend, I wanna end me
+[02:43.24] 
+[02:39.52] I wanna end me
+[02:41.27] I wanna, I wanna, I wanna end me
+[02:45.08] I wanna, I wanna, I wanna–
+[02:58.08] 
+[02:47.70] What do you want from me?
+[02:49.64] Why don't you run from me?
+[02:51.60] What are you wondering?
+[02:53.67] What do you know?
+[02:55.56] Why aren't you scared of me?
+[02:57.67] Why do you care for me?
+[02:59.67] When we all fall asleep, where do we go?
+```
